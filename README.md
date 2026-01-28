@@ -4,6 +4,7 @@ j jl
 nm n
 mn mn m
 mn m mn noijijoi
-oinlnljln
+oinlnljlnc
  nmn m
 cut
+bn  v
