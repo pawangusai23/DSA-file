@@ -10,6 +10,6 @@ cut
 bn  v
 ,m ,m  
 lk   
-lk k k 
+lk k k oihoihhi
 klhlh
 oihih
