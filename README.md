@@ -9,3 +9,4 @@ oinlnljlnc
 cut
 bn  v
 ,m ,m  
+lk   
