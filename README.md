@@ -10,7 +10,8 @@ cut
 bn  v
 ,m ,m  
 lk   
-lk k k oihoihhi
+lk k k oihoihhin  nkljnnn
+
 klhlh
 oihih
 uf67p
