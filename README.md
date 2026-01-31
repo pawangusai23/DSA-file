@@ -6,7 +6,7 @@ mn mn m
 mn m mn noijijoi
 oinlnljlnc
  nmn m
-cut
+cutkbj
 bn  v
 ,m ,m  kjbkjbk
 lk   
