@@ -7,7 +7,7 @@ mn m mn noijijoilknk
 kn k;
 oinlnljlnclkn
  nmn miojhoihoihlknknlk
- lkjn 
+ lkjn mn m
 cutkbjioyokl;lmlnln;
 k n;
 klnlkn
