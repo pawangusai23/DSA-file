@@ -8,8 +8,8 @@ kn k;
 oinlnljlnclkn
  nmn miojhoihoihlknknlk
  lkjn mn m
-cutkbjioyokl;lmlnln;mn mnjj ,
-k n;fdbdfb
+cutkbjioyokl;lmlnln;mn mnjj ,n m mn
+k n;fdbdfb m
 klnlknmn fbdfjhbjbj
 bn  vionoiknlkfdb d
 ;lm;kmn nm
