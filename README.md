@@ -12,7 +12,7 @@ cutkbjioyokl;lmlnln;mn mnjj ,n m mn
 k n;fdbdfb m
 klnlknmn fbdfjhbjbj
 bn  vionoiknlkfdb djkbkj
-;lm;kmn nm
+;lm;kmn kjbkj
 niojbjh
 lknijokl  l
 ,m ,m  kjbkklnlkjbk
