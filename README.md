@@ -7,10 +7,10 @@ mn m mn noijijoilknk
 kn k;
 oinlnljlnclkn
  nmn miojhoihoihlknknlkkjbkjk
- lkjn mn m
+ lkjn mn mkbk
 cutkbjioyokl;lmlnln;mn mnjj ,n m mn
 k n;fdbdfb m
-klnlknmn fbdfjhbjbj
+klnlknmn fbdfjhbjbjhjvhjv
 bn  vionoiknlkfdb djkbkjkjbk
 ;lm;kmn kjbkj
 niojbjh
