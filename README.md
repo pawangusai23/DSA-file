@@ -11,7 +11,7 @@ oinlnljlnclkn
 cutkbjioyokl;lmlnln;mn mnjj ,n m mnnbk
 k n;fdbdfb m, ,
 klnlknmn fbdfjhbjbjhjvhjvkjb ,m 
-bn  vionoiknlkfdb djkbkjkjbkjhvj,mm jb ,,m , m
+bn  vionoiknlkfdb djkbkjkjbkjhvj,mm jb ,,m , m .,mm .
 ;lm;kmn kjbkj,m ,
 niojbjhhjvj
 lknijokl  l
