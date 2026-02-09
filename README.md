@@ -14,7 +14,7 @@ klnlknmn fbdfjhbjbjhjvhjvkjb ,m
 bn  vionoiknlkfdb djkbkjkjbkjhvj,mm jb ,,m , m .,mm .
 ;lm;kmn kjbkj,m ,
 niojbjhhjvj
-lknijokl  l
+lknijokl  l.n.,n
 ,m ,m  kjbkklnlkjbk
 lk   
 lk k k oihoihhin  nkljnnnk
