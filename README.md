@@ -9,7 +9,7 @@ kn k;hjvjklmlk
 oinlnljlnclkn
  nmn miojhoihoihlknknlkkjbkjk
  lkjn mn mkbknm 
-cutkbjioyokl;lmlnln;mn mnjj ,n m mnnbk
+cutkbjioyokl;lmlnln;mn mnjj ,n m lkn
 k n;fdbdfb m, ,
 klnlknmn fbdfjhbjbjhjvhjvkjb ,m 
 bn  vionoiknlkfdb djkbkjkjbjbb
