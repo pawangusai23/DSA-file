@@ -13,7 +13,7 @@ cutkbjioyokl;lmlnln;mn mnjj ,n m lkn
 k n;fdbdfb m, ,
 klnlknmn fbdfjhbjbjhjvhjvkjb ,m 
 bn  vionoiknlkfdb djkbkjkjbjbb
-lkkjhvj,mm jb ,,m , m .,miobo
+lkkjhvj,mm jb ,,m , m .,miobokj 
 m .,m ,m 
 ;lm;kmn kjbkj,m ,
 niojbjhhjvj
