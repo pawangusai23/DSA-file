@@ -2,7 +2,9 @@
 m,# chatbot
 ,m ,
 j jljnljnio
-nm n mn m bdgbd,m m
+nm n mn m bdgbd,m m'
+.
+'.
 mn mn mpjpij
 mn m mn noijijoilknkiohi
 kn k;hjvjklmlk
