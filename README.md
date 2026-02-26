@@ -1,7 +1,7 @@
 ;lm;l
 m,# chatbot
 ,m ,, knk;iuhi
-jkvgjh., .
+jkvgjh., .iuhu
 j jljnljniolblk
 nm n mn m bdgbd,m m'lknlk
 kjopjopyug
