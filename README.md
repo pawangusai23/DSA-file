@@ -19,7 +19,7 @@ cutkbjioyokl;lmlnln;mn mnlk
 jj ,n m lknn,n 
 lk [pk[
 ompo
-lkji
+lkjikjbkj
 k n;fdbdfb m, ,
 klnlknmn fbdfjhbjbjhjvhjvkjb ,m 
 bn  vionoiknlkfdb djkbkjkjbjbb
