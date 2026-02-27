@@ -16,7 +16,7 @@ oinlnljlnclkn
  nmn miojhoihoihlknknlkkjbkjkl l[kp[jkbkjb
  lkjn mn mkbknm 
 cutkbjioyokl;lmlnln;mn mnlk 
-jj ,n m lknn,n 
+jj ,n m lknn,n jkbkjb
 lk [pk[
 ompo
 lkjikjbkj
